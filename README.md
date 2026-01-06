@@ -26,3 +26,7 @@ This project strengthened my ability to convert raw data into meaningful insight
 💬 Feedback and suggestions are welcome!
 
 #PowerBI #DataAnalytics #BusinessIntelligence #DashboardDesign #DataAnalyst #Swiggy #DAX #AnalyticsProject
+
+# for any suggestions please connect me through 
+mobile : 8007475363  email : mayurharinkhede800@gmail.com 
+
